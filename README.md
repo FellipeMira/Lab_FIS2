@@ -5,4 +5,4 @@
 
 ### Prof. Dr. Fernando
 
-### Alunos: Fellipe, Mirela e Tiago
+### Alunos: Fellipe M., Mirela e Tiago
