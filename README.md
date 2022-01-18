@@ -5,4 +5,4 @@
 
 ### Prof. Dr. Fernando
 
-### Alunos: Fellipe Mira Chaves 
+### Alunos: Fellipe, Mirela e Tiago
